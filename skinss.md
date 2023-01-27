@@ -11,5 +11,5 @@
 # [404 SkinNotFound v2](https://drive.google.com/file/d/1bTLs2-kxiEHDt5VQR8ZcfCFEeNoDTbVU/view?usp=sharing)
 ![](https://i.imgur.com/SuDYMSt.jpg)
 
-# [#Azerite (osu player84) #2](https://drive.google.com/file/d/1HzoxHiUfTN8Y6p84EIzcwjZrzqJ4K1Nc/view?usp=sharing)
-![](https://i.imgur.com/aqNcVuX.jpg)
+# [azer8dusk](http://www.mediafire.com/file/3utdwy2q0vx8h7h/azer8dusk.osk/file#)
+![](https://i.imgur.com/p6nxIJB.jpg)
