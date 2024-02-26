@@ -18,4 +18,4 @@
 ![](https://i.imgur.com/BfwhBSM.png)
 wanna get your own skinhub too? dm me on discord @flapczek or twitter @kezcpalF
 
-https://twitch.tv/theplgovernment_osu
+https://twitch.tv/flapczek_
