@@ -1,5 +1,3 @@
-# skins that I use 
-
 # last update: 06.01.2024
 
 # [azerinoxrektygon](https://drive.google.com/file/d/1NEvfAcxWS8rQyQqjc_4tQW7Y_4bQaRVK/view?usp=sharing)
