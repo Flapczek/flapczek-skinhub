@@ -16,6 +16,3 @@
 
 # [Rafis 2018 mrekk](https://drive.google.com/file/d/1qJdiwKfVVwqjMqn6I0u5j_Goj-U2MnJh/view?usp=sharing)
 ![](https://i.imgur.com/BfwhBSM.png)
-wanna get your own skinhub too? dm me on discord @flapczek or twitter @kezcpalF
-
-https://twitch.tv/flapczek_
